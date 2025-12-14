@@ -125,4 +125,4 @@ Gain real-time visibility into operations
 Durga Prasad
 Power BI Analyst | Data Analyst
 
-🔗 LinkedIn: Your link
+🔗 LinkedIn: https://www.linkedin.com/posts/durga-prasad-321b76239_powerbi-dataanalytics-learningjourney-activity-7405891488099864576-tSte?utm_source=share&utm_medium=member_desktop&rcm=ACoAADtwdUkBZJz720mHFT-jIquBLJj_r8Lt5SQ
